@@ -1,1 +1,1 @@
-wassup homies its me resident sigma male she/her
+i am so gunguspilled
